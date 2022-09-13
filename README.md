@@ -10,4 +10,6 @@
 * Отличное
 * Боевое :unamused: 
 
-[![Кот](https://www.ridus.ru/news/372123)](https://youtu.be/EsliBNtnfGo)
+
+
+[![Cat](http://semeynaya-kuchka.ru/wp-content/uploads/2019/07/milye-kotiki-18.jpg)](https://www.youtube.com/watch?v=QBKAihwZzVQ)
